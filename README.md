@@ -1,1 +1,1 @@
-PSG-OM
+PSG-manchester
